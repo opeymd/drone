@@ -1,12 +1,13 @@
 ## Peeping Drones, dust and insect murder. Suck my motherfucking DICK
 
 [Back to safety](https://opeymd.github.io/mintfab1000/) to maintain and preview the content for your website in Markdown files.
-
-If drones spy and dont pay off in 25 million$ deposits, it can suck a dick. If drones spy and dont kill off the real enemy, it can suck a dick. Suck my dick suck my dick suck my dick. My  DICK is very expensive.
-
 [editor on GitHub](https://github.com/opeymd/drone/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+_If drones spy and dont pay off in 25 million$ deposits, it can suck a dick. If drones spy and dont kill off the real enemy, it can suck a dick. Suck my dick suck my dick suck my dick. My  DICK is very expensive._
+
+### Jungle n Funky House mixes. Recorded from 2 turntables and various round records
+
+<iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/931514299&color=%232c241c&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/opeymd" title="@Y*^%$^%" target="_blank" style="color: #cccccc; text-decoration: none;">@Y*^%$^%</a> · <a href="https://soundcloud.com/opeymd/early-pre-2000-jungle-tunes" title="Early &amp; Pre 2000 Jungle Tunes (Continuous DJ Set)" target="_blank" style="color: #cccccc; text-decoration: none;">Early &amp; Pre 2000 Jungle Tunes (Continuous DJ Set)</a></div>
 
 ```mustread
 How many times did you have thoughts that you never wanted to share with
@@ -48,11 +49,6 @@ and efficiency, will be implanted in the humanoid cereberum, which would make it
 inherently controllable. R.N.M. will then have the ability to read and govern a person's
 emotional mental procedures along with the involuntary and visions.
 ```
-
-### Jungle n Funky House mixes. Recorded from 2 turntables and various round records
-
-<iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/931514299&color=%232c241c&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/opeymd" title="@Y*^%$^%" target="_blank" style="color: #cccccc; text-decoration: none;">@Y*^%$^%</a> · <a href="https://soundcloud.com/opeymd/early-pre-2000-jungle-tunes" title="Early &amp; Pre 2000 Jungle Tunes (Continuous DJ Set)" target="_blank" style="color: #cccccc; text-decoration: none;">Early &amp; Pre 2000 Jungle Tunes (Continuous DJ Set)</a></div>
-
 
 ## I DONT KNOW WHAT THE FUCK
 

@@ -30,9 +30,7 @@ _getrecords_
 - https://youtu.be/sy6stJLg28U
 - https://youtu.be/N1JVsTeoZdw
 
-<iframe width="100%" height="42" src="https://youtu.be/N1JVsTeoZdw" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-
-
+- money here
 - money here
 - money here
 - money here

@@ -1,6 +1,6 @@
 [<- Back to safety](https://opeymd.github.io/mintfab1000/), cuz the world is fucked up and just as good for the super fresh clean good ol boys. Have at it
 
-## Peeping Drones, dust and insect murder. Suck my motherfucking DICK
+## Peeping Drones, dust and insect murder. 
 If drones spy and dont pay off in 25 million$ deposits, it can suck a dick. If drones spy and dont kill off the real enemy, it can suck a dick. Suck my dick suck my dick suck my dick. My  DICK is very expensive.[(Kill this)](https://github.com/opeymd/drone/edit/gh-pages/index.md)
 
 ### Jungle n Funky House mixes. Recorded from 2 turntables and various round records
@@ -52,7 +52,7 @@ emotional mental procedures along with the involuntary and visions.
 ## I DONT KNOW WHAT THE FUCK
 
 What the mind tap fuck. "Not good" no shit, fuck my brain with the devils breath playing God. Suck my d.i.c.k.
-A freaked out prisoner pissed off waiting to kill is a job well done. suck a dick.
+A freaked out prisoner pissed off is a job well done. suck a dick.
 
 #### The computer we'll call Stan. 
 - Tell Robert we called 

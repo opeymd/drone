@@ -9,9 +9,12 @@ If drones spy and dont pay off in 25 million$ deposits, it can suck a dick. If d
 Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
 
 ```mustread
-_How many times did you have thoughts that you never wanted to share with
+
+## How many times did you have thoughts that you never wanted to share with
 anyone, and have been constantly worried at the thought of someone ever finding out
 about these thoughts?
+```
+```mustread
 All of us have been through this process, and the new and improved technologies
 being developed around the world, supposedly to deal with crime and terrorism, and
 inadvertently intrude on one's privacy, should probably bring us all to the brink of
@@ -38,7 +41,7 @@ few years it is expected that DNA microchips, under the guise of medical
 breakthroughs that will be presented to launch the disease cure processes on speed
 and efficiency, will be implanted in the humanoid cereberum, which would make it
 inherently controllable. R.N.M. will then have the ability to read and govern a person's
-emotional mental procedures along with the involuntary and visions._
+emotional mental procedures along with the involuntary and visions.
 ```
 
 ### Jungle n Funky House mixes. Recorded from 2 turntables and various round records

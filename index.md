@@ -10,7 +10,7 @@ Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://j
 
 ```mustread
 
-## How many times did you have thoughts that you never wanted to share with
+How many times did you have thoughts that you never wanted to share with
 anyone, and have been constantly worried at the thought of someone ever finding out
 about these thoughts?
 ```

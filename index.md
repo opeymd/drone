@@ -9,7 +9,6 @@ If drones spy and dont pay off in 25 million$ deposits, it can suck a dick. If d
 Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
 
 ```mustread
-
 How many times did you have thoughts that you never wanted to share with
 anyone, and have been constantly worried at the thought of someone ever finding out
 about these thoughts?
@@ -19,13 +18,17 @@ All of us have been through this process, and the new and improved technologies
 being developed around the world, supposedly to deal with crime and terrorism, and
 inadvertently intrude on one's privacy, should probably bring us all to the brink of
 paranoia.
+```
+```mustread
 These technologies are funded by governments at the highest level and some of
 the countries involved include USA, RUSSIA, CHINA, UK, Spain, Germany and France.
+
 R.N.M. works remotely (ever wondered why have we all been driven relentlessly
 towards wireless systems?) to control the brain under the objective to detect any
 criminal thought taking place inside the mind of a possible culprit. Inevitable question:
-How can you isolate a criminal thought if you do not have a comparative measure of
-non-criminal thoughts?
+How can you isolate a criminal thought if you do not have a comparative measure of non-criminal thoughts?
+```
+```mustread
 This undertaking is based on two principles:
 • The research studies have shown that the humanoid intellect thinks at a speed of
 about 5 kilobits per second and, therefore, does not have the capability to contest
@@ -34,6 +37,8 @@ with supercomputers acting via satellites, implants and biotelemetry.
 using supercomputers, the R.N.M. system can home in on it, and send messages
 through an embedded individual's nervous system in order to affect their
 performance in a preferred way.
+```
+```mustread
 The entire system has been developed after about 50 years (!) of electromagnetic
 human experimentation, claimed to be involuntary. According to many scientists
 involved in this program (their names are not revealed for obvious reasons), within a

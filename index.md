@@ -56,6 +56,10 @@ emotional mental procedures along with the involuntary and visions.
 What the mind tap fuck. "Not good" no shit, fuck my brain with the devils breath playing God. Suck my d.i.c.k.
 A freaked out prisoner pissed off waiting to kill is a job well done. suck a dick.
 
+#### The computer we'll call Stan. 
+- Tell Robert we called 
+- try not to cry / ("its evil"?)..... Eat.
+
 
 _getrecords_
 - https://youtu.be/K8X9EsSYD9k

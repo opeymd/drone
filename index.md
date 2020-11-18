@@ -8,6 +8,7 @@ If drones spy and dont pay off in 25 million$ deposits, it can suck a dick. If d
 
 Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
 
+```mustread
 _How many times did you have thoughts that you never wanted to share with
 anyone, and have been constantly worried at the thought of someone ever finding out
 about these thoughts?
@@ -38,7 +39,7 @@ breakthroughs that will be presented to launch the disease cure processes on spe
 and efficiency, will be implanted in the humanoid cereberum, which would make it
 inherently controllable. R.N.M. will then have the ability to read and govern a person's
 emotional mental procedures along with the involuntary and visions._
-
+```
 
 ### Jungle n Funky House mixes. Recorded from 2 turntables and various round records
 

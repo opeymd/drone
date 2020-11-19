@@ -105,6 +105,9 @@ Syntax highlighted code block
 ```
 [Link](https://drive.google.com/file/d/1fLiTkV-tNAHIpBSPLYv81GcuzmOGbujh/view?usp=sharing) and ![https://drive.google.com/file/d/1fLiTkV-tNAHIpBSPLYv81GcuzmOGbujh/view?usp=sharing](https://drive.google.com/file/d/1fLiTkV-tNAHIpBSPLYv81GcuzmOGbujh/view?usp=sharing)
 
+![Fucku Logo](https://drive.google.com/file/d/1fLiTkV-tNAHIpBSPLYv81GcuzmOGbujh/view?usp=sharing)
+Format: ![Alt Text](https://drive.google.com/file/d/1fLiTkV-tNAHIpBSPLYv81GcuzmOGbujh/view?usp=sharing)
+
 For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/)
 
 ### Jekyll Themes

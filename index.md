@@ -103,10 +103,8 @@ Syntax highlighted code block
 **Bold** and _Italic_ and `Code` text
 
 ```
-[Link](https://drive.google.com/file/d/1fLiTkV-tNAHIpBSPLYv81GcuzmOGbujh/view?usp=sharing) and ![https://drive.google.com/file/d/1fLiTkV-tNAHIpBSPLYv81GcuzmOGbujh/view?usp=sharing](https://drive.google.com/file/d/1fLiTkV-tNAHIpBSPLYv81GcuzmOGbujh/view?usp=sharing)
-
-![Fucku Logo](https://drive.google.com/file/d/1fLiTkV-tNAHIpBSPLYv81GcuzmOGbujh/view?usp=sharing)
-Format: ![Alt Text](https://drive.google.com/file/d/1fLiTkV-tNAHIpBSPLYv81GcuzmOGbujh/view?usp=sharing)
+## Natural nature and free will or the Good and evil on the same plane, equal power, black and white.
+this is the triangle or the all seeing eye on top of the pyrimid, a inherited vision or stolen facts of others experience used for personal gain, power, control, to be the #1 ruling principal. 
 
 <iframe src="https://drive.google.com/file/d/1fLiTkV-tNAHIpBSPLYv81GcuzmOGbujh/preview" width="640" height="480"></iframe>
 

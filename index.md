@@ -104,7 +104,7 @@ Syntax highlighted code block
 **Bold** and _Italic_ and `Code` text
 
 ```
-<h2><a id="user-content-natural-nature-and-free-will-or-the-good-and-evil-on-the-same-plane-equal-power-black-and-white" class="anchor" aria-hidden="true" href="#natural-nature-and-free-will-or-the-good-and-evil-on-the-same-plane-equal-power-black-and-white"><svg class="octicon octicon-link" viewBox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"></svg></a></h2> 
+## Natural nature and free will or the good and evil on the same plane equal power black and white
 
 this is the triangle or the all seeing eye on top of the pyrimid, a inherited vision or stolen facts of others experience used for personal gain, power, control, to be the #1 ruling principal. 
 

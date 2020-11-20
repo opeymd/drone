@@ -104,9 +104,9 @@ Syntax highlighted code block
 **Bold** and _Italic_ and `Code` text
 
 ```
-## (#natural-nature-and-free-will-or-the-good-and-evil-on-the-same-plane-equal-power-black-and-white)
-[create an anchor](#anchors-in-markdown)
-this is the triangle or the all seeing eye on top of the pyrimid, a inherited vision or stolen facts of others experience used for personal gain, power, control, to be the #1 ruling principal. 
+## Natural nature and free will or the good and evil on the same plane equal power black and white
+
+Inherited vision or stolen facts of others experience used for personal gain, power, control, to be the #1 ruling principal. Get ur own GOD cunts
 
 <iframe src="https://drive.google.com/file/d/1fLiTkV-tNAHIpBSPLYv81GcuzmOGbujh/preview" width="640" height="480"></iframe>
 

@@ -52,8 +52,28 @@ emotional mental procedures along with the involuntary and visions.
 
 ## I DONT KNOW WHAT THE FUCK
 
-What the mind tap fuck. "Not good" no shit, fuck my brain with the devils breath playing God. Suck my d.i.c.k.
-A freaked out prisoner pissed off is a job well done. suck a dick.
+<a href="https://www.discogs.com/Cirrus-Back-On-A-Mission/master/123568">Back-On-A-Mission</a>
+
+** https://youtu.be/ho6zJn2Pirc
+** 
+- money here 
+<iframe width="100%" height="50" src="https://www.youtube.com/embed/UiGcoaVDfIs" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+- - - money here
+- - - - .
+<iframe width="100%" height="50" src="https://www.youtube.com/embed/gmb5ikP3GWE" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+- - - - sex n drugs n bugs here - teeny insect drones telepathic "systematic purpose?" 
+- sex n drugs n money here.
+<iframe width="100%" height="50" src="https://www.youtube.com/embed/FpNkSanicMI?controls=0" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+- - - more sex and more bug money here
+- - - - - - no sound and beatdowns here 
+<iframe width="100%" height="50" src="https://www.youtube.com/embed/EhZFzQTBjRM" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<br> 
+<iframe style="border: 0; width: 100%; height: 42px;" src="https://bandcamp.com/EmbeddedPlayer/album=2652968343/size=small/bgcol=333333/linkcol=e99708/transparent=true/" seamless><a href="https://dubplates.techitch.com/album/plate-003">PLATE 003 by TECHNICAL ITCH</a></iframe>
+- - - more and more money here 
+## ++
+<iframe width="100%" height="50" src="https://www.youtube.com/embed/-xHbJArCmnQ" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+
 
 #### The computer we'll call Stan. 
 - Tell Robert we called 
